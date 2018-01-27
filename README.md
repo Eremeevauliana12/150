@@ -4,7 +4,7 @@
    - ## _I am 18 years old._ ![Photo]( https://pp.userapi.com/c621513/v621513374/107d2/cYKMqaobOZo.jpg )
 * * *
 - ### _I study at Higher School of Economics. I am trying to attend all the classes._
-- ### _I live in Moscow. :purple_heart:  I really love this city because there are many interesting places!_ ![Moscow]( https://thumbs.gfycat.com/UnhealthyMindlessIchthyostega-max-1mb.gif)
+- ### _I live in Moscow. :heart: I really love this city because there are many interesting places!_ ![Moscow]( https://thumbs.gfycat.com/UnhealthyMindlessIchthyostega-max-1mb.gif)
 * * *
 + ### _I am fond of foreign languages. Now I am learning Spanish, English and German. When I travel abroad, my skills really help me! I always use the opportunity to communicate with native speakers._
 ![](http://www.pravda-tv.ru/wp-content/uploads/2014/12/57.png)
